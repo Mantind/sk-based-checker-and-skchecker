@@ -1,2 +1,3 @@
-# sk-based-checker-and-skchecker
-sk checker sk_key sk-key skchecker cardchecker carding free checker 
+# SK BASED CHECKER + MASS SK VALID KEY CHECKER
+
+Everythingh here is strictly for educational and testing purposes. I don't support any illegal activites or unfair use of this.
